@@ -3,3 +3,5 @@
 <h4>GET RAINWAY: <span style="color: #00ffff;"><a style="color: #00ffff;" href="HTTPS://RAINWAY.TV/download.html">HTTPS://RAINWAY.TV/DOWNLOAD/</a></span></h4>
 <h4>PERSONAL MESSAGE FOR INFLUENCERS: <span style="color: #00ffff;"><a style="color: #00ffff;" href="https://rainway.tv/sponsorship/Message_From_Katrina.mp3">HTTPS://RAINWAY.TV/SPONSORSHIP/MESSAGE_FROM_KATRINA.MP3</a></span></h4>
 <p>&nbsp;</p>
+
+© 2022 Rainway, Inc. All rights reserved.
